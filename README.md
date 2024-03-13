@@ -22,6 +22,8 @@ https://youtu.be/CLiS1532Stw
 تقدر تشوف البلاي ليست دي ودي شرحي أنا (نرجسية اوفر)
 
 https://www.youtube.com/playlist?list=PL3zElIhpSfA-Cv5fTD1kFaYQq_IohRUdd
+
+
 أو تقدر تشوف البلاي ليست دي:(جميلة برضو)
 
 
