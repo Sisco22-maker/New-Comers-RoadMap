@@ -1,4 +1,4 @@
-# New Commers ReadMap By Islam Sobhy Yousof AKS:ISY 🚀
+# New Commers ReadMap By Islam Sobhy Yousof AKA:ISY 🚀
 
 
 # احتسب هذا العمل خالصاً لوجه الله عز وجل وأحتسبة في ميزان حسنات أبي وأمي ولي ولأخوتي وﻷهلي أجمعين ادع لأبي بالرحمة والمغفرة ولأمي بطول العمر وحسن العمل ولي ولأخوتي بالهداية وفقك الله لما يحبه ويرضاه ❤️
